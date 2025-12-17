@@ -15,3 +15,7 @@
 -   [黑特莱姆](https://space.bilibili.com/593969931)
 -   [比巴卜喂](https://space.bilibili.com/86434237)
 -   [吉米哥 Jimi Bro](https://www.youtube.com/@jimibrovlog)
+
+## AIGC
+
+-   [阿德托昆博带件衣服@bilibili](https://space.bilibili.com/15436862)
